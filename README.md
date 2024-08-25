@@ -1,2 +1,2 @@
 # DAKKApress
-DAKKA PRESS fiction and DAKKA PRESS Presents archive.
+DAKKA press fiction and DAKKA press Presents archive.
